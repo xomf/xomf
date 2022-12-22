@@ -1,2 +1,2 @@
 # i have brain damage
-please ignore all of my repositories
+![neofetch](https://i.ibb.co/P6kzYXS/neocum.png)
