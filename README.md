@@ -1,7 +1,7 @@
 hi, im xomf
 -----------
 
-i enjoy making retarded things, usually whatever i want/need in the moment. i also enjoy learning new things!! :)
+i enjoy making dumb things, usually whatever i want/need in the moment. i also enjoy learning new things!! :)
 
 
 
