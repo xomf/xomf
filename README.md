@@ -22,4 +22,4 @@ languages i dislike:
 _____
 how 2 contact:
 
-email: ```xomf@the-atf-shot-my.dog```
+email: xomf@the-atf-shot-my.dog
